@@ -1,4 +1,4 @@
 # Intermediate
 
 - **Norkizah M. Baute**
-- **Mikhaela D. Pastor
+- **Mikhaela D. Pastor**
